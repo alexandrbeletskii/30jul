@@ -1,3 +1,5 @@
 **first code**
 
-some phyton functions
+some phyton 
+
+new code was written
