@@ -10,4 +10,4 @@
 я хочу мало делать и много денег 
 
 dfdfsfs
-absolutly new functional
+new code frome some jun
