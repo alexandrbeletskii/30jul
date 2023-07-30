@@ -10,4 +10,4 @@
 я хочу мало делать и много денег 
 
 dfdfsfs
-absolutly new functional
+there is info for master branch
