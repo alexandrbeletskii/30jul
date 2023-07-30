@@ -10,4 +10,4 @@
 я хочу мало делать и много денег 
 
 dfdfsfs
-there is info for master branch
+new code frome some jun
