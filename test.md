@@ -8,3 +8,6 @@
 тут
 
 я хочу мало делать и много денег 
+
+dfdfsfs
+there is a new code from junior programmer
